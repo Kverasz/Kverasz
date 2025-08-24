@@ -1,10 +1,10 @@
-#  <img src="https://th.bing.com/th/id/OIP.kJ3wxuQPY9vV1sIZwZ_rkQHaHa?w=169&h=180&c=7&r=0&o=5&pid=1.7" width="90px"> Kennedy Veras
+#  <img src="https://img.pikbest.com/wp/202348/cute-dolls-daruma-doll-vector_10035899.jpg!sw800" width="30px">    Kennedy Veras
 
-Eu sou <strong>Kennedy Veras</strong>, <strong>Tenho 20 anos e jogo roblox 23h por dia, as 1h restantes uso pra fazer nessecidades basicas.. Dormir, comer, mijha, cagha</strong> 👨🏻‍💻
+Olá, Me chamo <strong>Kennedy Veras</strong>, e estou iniciando minha carreira profissional na área de T.I. 👨🏻‍💻
 
-- 🚀 Atualmente estou aprendendo: <strong>Algo</strong> 
-- 💬 Pergunte-me sobre: <strong>volei e coisas idiotas</strong>
-- 📣 Nós podemos falar em: <strong>so em pt br</strong>
+- <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiI6McwObt_tdm9u70CYSYocC5mG0fx75PjlFILPJ3IMetzNoAhcVqXZOFxQ95AUkL-iEtCux1eU4iWVbvA3ke_jHPJhnWO0WTteSjppPPJ3kee6GI4RRE68Cgc5hMKzbkisZgTVNuMqZnF/s1600/45.gif" width="20px">Atualmente estou cursando <strong>Tec. ADS </strong> 
+- <img src="https://cdn.pixabay.com/animation/2023/03/31/04/15/04-15-05-521_512.gif" width="20px"> Local: <strong>Faculdade Senac</strong>
+- <img src="https://i.pinimg.com/originals/9d/9b/d1/9d9bd13afce1a798d22ecfd9897730ed.gif" width="20px">   1º Periodo <strong> </strong>
 
 <div align="center">
 
