@@ -1,6 +1,6 @@
 #  <img src="https://img.pikbest.com/wp/202348/cute-dolls-daruma-doll-vector_10035899.jpg!sw800" width="30px">    Kennedy Veras
 
-Olá, Me chamo <strong>Kennedy Veras</strong>, e estou iniciando minha carreira profissional na área de T.I. 👨🏻‍💻
+Olá, Me chamo <strong>Kennedy Veras</strong> e estou iniciando minha carreira profissional na área de T.I. 👨🏻‍💻
 
 - <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiI6McwObt_tdm9u70CYSYocC5mG0fx75PjlFILPJ3IMetzNoAhcVqXZOFxQ95AUkL-iEtCux1eU4iWVbvA3ke_jHPJhnWO0WTteSjppPPJ3kee6GI4RRE68Cgc5hMKzbkisZgTVNuMqZnF/s1600/45.gif" width="20px">Atualmente estou cursando <strong>Tec. ADS </strong> 
 - <img src="https://cdn.pixabay.com/animation/2023/03/31/04/15/04-15-05-521_512.gif" width="20px"> Local: <strong>Faculdade Senac</strong>
